@@ -1,6 +1,6 @@
 # Resume
 
-### Aleksandra Wawrynek
+### Aleksandra W
 
 #### Contact info: 
 e-mail: awawrynek@gmail.com
