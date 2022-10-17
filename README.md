@@ -1,1 +1,1 @@
-https://ajronic.github.io/rsschool-cv/
+https://Ajronic.github.io/rsschool-cv/
